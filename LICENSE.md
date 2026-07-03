@@ -1,4 +1,4 @@
-#  
+#  rivals no-ban Scripts offers the most advanced rivals Script, with auto-upgrade and aimbot. Perfect for dominating any match.
 
 
 
